@@ -3,8 +3,10 @@
 <img width="706" height="280" alt="image" src="https://github.com/user-attachments/assets/a946feda-fee6-4986-95a0-f647f30af0c1" />
 <img width="811" height="708" alt="image" src="https://github.com/user-attachments/assets/e0caa2dd-cc57-4642-987f-53e4f8f78903" />
 
+![WhatsApp Image 2025-11-24 at 6 10 53 PM](https://github.com/user-attachments/assets/9fa10fe2-1330-4eb3-b1c8-924b99ec8a0b)
 
-## ATTACH THE CORRECT CIRCUIT
+## ATTACH ![WhatsApp Image 2025-11-24 at 6 12 59 PM](https://github.com/user-attachments/assets/7a2ebfde-6d4e-4f6e-a0e1-ba06f5260388)
+THE CORRECT CIRCUIT
 
 ## GRAPHS
 
