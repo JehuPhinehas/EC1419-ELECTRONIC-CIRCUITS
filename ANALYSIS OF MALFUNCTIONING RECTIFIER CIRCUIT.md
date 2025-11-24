@@ -5,10 +5,9 @@
 
 ![WhatsApp Image 2025-11-24 at 6 10 53 PM](https://github.com/user-attachments/assets/9fa10fe2-1330-4eb3-b1c8-924b99ec8a0b)
 
-## ATTACH !
-THE CORRECT CIRCUIT
 
 ## GRAPHS
-[WhatsApp Image 2025-11-24 at 6 12 59 PM](https://github.com/user-attachments/assets/7a2ebfde-6d4e-4f6e-a0e1-ba06f5260388)
+![WhatsApp Image 2025-11-24 at 6 12 59 PM](https://github.com/user-attachments/assets/4a6ee663-605b-4fa8-ac58-3d68715690b0)
+
 
 <img width="936" height="122" alt="image" src="https://github.com/user-attachments/assets/2d2e2399-6a9f-49ec-b40c-3c2982d4b82c" />
