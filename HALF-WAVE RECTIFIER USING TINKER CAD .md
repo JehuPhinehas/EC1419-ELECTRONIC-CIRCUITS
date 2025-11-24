@@ -3,6 +3,9 @@
 <img width="381" height="301" alt="image" src="https://github.com/user-attachments/assets/17144186-836e-449a-bfad-90d487b2d6ad" />
 <img width="752" height="497" alt="image" src="https://github.com/user-attachments/assets/e23953c7-bb20-4b94-aadb-8b5530894bac" />
 <img width="591" height="461" alt="image" src="https://github.com/user-attachments/assets/b9852354-c1e4-46dc-b7c0-0b9490f17d07" />
+![WhatsApp Image 2025-11-24 at 5 53 19 PM](https://github.com/user-attachments/assets/49012471-2a2c-4833-8c56-0b45640e1385)
+![WhatsApp Image 2025-11-24 at 5 53 45 PM](https://github.com/user-attachments/assets/f1fcdf2d-2b9b-4da5-b00d-8ef0277e8630)
+
 
 
 ## TINKER CAD OUTPUT CIRCUIT
